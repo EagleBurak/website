@@ -1,2 +1,2 @@
-# wisenetwork
-wisenetwork website created by eagleburak
+# sallaaaaaa
+bosveee
